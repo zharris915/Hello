@@ -1,2 +1,2 @@
-## To improvw is to change
+## To improve is to change
 ## There is nothing permanant, except change
